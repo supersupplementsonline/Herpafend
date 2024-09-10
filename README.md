@@ -1,5 +1,5 @@
-<h2 style="text-align: left;"><span style="color: #ff0000;"><a style="color: #ff0000;" href="https://bit.ly/OfferHerpaFend" target="_blank">Herpafend</a></span></h2>
-<p>╰┈➤ Product Name:⇢ <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://bit.ly/OfferHerpaFend" target="_blank">Herpafend</a></span></p>
+<h2 style="text-align: left;"><span style="color: #ff0000;"><a style="color: #ff0000;" href="https://supersupplements.online/cold-sore-in-mouth-treatment/" target="_blank">Herpafend</a></span></h2>
+<p>╰┈➤ Product Name:⇢ <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://supersupplements.online/cold-sore-in-mouth-treatment/" target="_blank">Herpafend</a></span></p>
 <p>╰┈➤ Benefits:⇢ <span style="color: #ff00fe;">Supplement Designed To Bolster Immune Health</span></p>
 <p>╰┈➤ Count:⇢ 60 Capsules (Take 2 Capsule/Day)</p>
 <p>╰┈➤ Official Website:⇢ <a href="https://bit.ly/OfferHerpaFend"><span style="color: red;">https://bit.ly/OfferHerpaFend</span></a></p>
